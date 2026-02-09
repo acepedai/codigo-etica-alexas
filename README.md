@@ -1,2 +1,0 @@
-# codigo-etica-alexas
-CODIGO DE ETICA DE TRANSPORTES MANA 
